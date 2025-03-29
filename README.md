@@ -13,7 +13,7 @@
 Versatile **Planning & Project Management** professional with extensive experience in **Commercial, Retail, Residential, and Hospitality** sectors. Expertise in:  
 
 - High-rise residential and premium commercial office spaces  
-- Large-scale retail malls and hospitality projects  
+- Large-scale retail malls projects  
 - Project scheduling, budgeting, procurement, and risk management  
 - Technology-driven solutions for enhanced project efficiency  
 - Cost control, compliance, and sustainability (**LEED Green Associate**)  
